@@ -1,4 +1,4 @@
-# 
+# Official geckoterminal sniper bot tools for Mac OS | Professional geckoterminal sniper bot tools for PC Windows. Featuring fast mempool access and priority gas auctions — optimized for maximum performance on every platform.
 
 
 
